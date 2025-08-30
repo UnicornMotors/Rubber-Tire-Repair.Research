@@ -8,3 +8,7 @@ Chat GPT: https://chatgpt.com/share/68b2523a-f4ec-8007-8409-c426ee3a7735
 
 # Wiki:
 https://en.wikipedia.org/wiki/Vulcanization
+
+# video:
+- [Tire repair Glue rubber strong adhesive nonding for sidewall](https://www.youtube.com/shorts/okYwkxCxnrA?feature=share)
+- [How to produce the liquid Glue by Cushion Gum for Tyre Retread & Repair](https://www.youtube.com/shorts/RHCSWJw3m78?feature=share)
